@@ -5,4 +5,4 @@ layout: post
 ---
 Checking 3
 
-![](http://sms.math.nus.edu.sg/smsmedley/Vol-26-2/The%20Singapore%20Mathematics%20Project%20Festival%20and%20the%20Foo%20Kean%20Pew%20Memorial%20Prize.pdf)
+![](https://c6.staticflickr.com/2/1520/24330829813_944c817720_b.jpg)
